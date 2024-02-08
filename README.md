@@ -1,2 +1,1 @@
-# hax-virus
-if it is labeled as virus then download at ur own risk
+this is a virus/hacking  thing so make sure to be careful when downloading the viruses
